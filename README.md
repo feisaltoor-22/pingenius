@@ -1,0 +1,2 @@
+# pingenius
+PRIVACY POLICY
